@@ -6,7 +6,7 @@
 
 💡- I'm interested in data analysis, product management, and helping people improve their IT skills.
 
-### I have a solid background in Education; for the past few years, I have been working as a product manager.
+### I have a solid background in Education, for the past few years, I have been working as a product manager.
 
 I'm interested in:
 
